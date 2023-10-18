@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with viver
 - 💬 Ask me about suisidio
 - 📫 How to reach me: bololo haha
-- 😄 Pronouns: bença/pai
-- ⚡ Fun fact: bença pai
+- 😄 Pronouns: [bença/pai](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSUxUvBHsa0Dprz2urn-mCrkvMPyrorXjL9LGoNNWs&s)
+- ⚡ Fun fact: [bença pai](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSUxUvBHsa0Dprz2urn-mCrkvMPyrorXjL9LGoNNWs&s)
