@@ -1,8 +1,9 @@
 
 **jaodufrifai/jaodufrifai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ 
+ 🇵🇸 "*Al Qawlu Qawlus Sawarim*"
 
-Here are some ideas to get you started:
-"*bim bim bam bam suka blyat*"
+ 🇷🇺 "*bim bim bam bam suka blyat*"
 
 - 🔭 I’m currently trabalhando on escola 
 - 🌱 I’m currently aprendendo escola
